@@ -1,4 +1,4 @@
-# 
+# Enhance Adobe Audition for macOS with Adobe Audition for macOS ultimate Automation: AI-upscaling & 4K-export, the #1 automation. Includes AI-upscaling and 4K-export for a smoother
 
 
 
